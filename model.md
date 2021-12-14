@@ -1,16 +1,17 @@
-# Despertar
+# DESPERTAR
 
-## Propósito
+## PROPÓSITO
 
 Compartir experiencias de temas que nos han ayudado en el día a día tanto en casa como en la vida cotidiana.
 
-## Introducción
+## INTRODUCCIÓN
 
 Cada día se nos presentan situaciones en el trabajo, la escuela, con nuestra familia, en el transporte o en el tráfico, estas situaciones nos dejan ver de manera muy clara la falta de comunicación, de empatía y de tolerancia hacia los demás y hacia nosotros mismos.
 A veces juzgamos los actos y discursos de los demás, todos estamos inmersos en nuestros propios pensamientos, formulamos las respuestas correctas a muchos problemas cotidianos en nuestra mente y los olvidamos ahí, estamos atrapados en el egoísmo a causa del fastidio.
 ¿Que pasaría si dijéramos mas de lo que sentimos y pensamos? ¿Y si aprendiéramos más sobre nosotros? Lo que buscamos al escribir estas líneas es alborotar un poco las ideas y despertar en los lectores el interés de algo que tal vez ya había estado dando vueltas en sus cabezas pero que no habían logrado explorar, este busca ser, ese pequeño empujón.
 
-## COMUNICACIÓN
+## COMUNICACIÓN
+
 LA COMUNICACIÓN EFICAZ Y EFICIENTE
 
 ¿Para qué saber comunicarse?
