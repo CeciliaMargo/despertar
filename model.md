@@ -41,5 +41,5 @@ Todo los días tenemos la oportunidad de experimentar, de probar algo nuevo, de 
 ## TOLERANCIA
 TOLERANCIA A LA FRUSTRACIÓN 
 
--Ser paciente
--Pensar en la responsabilidad de nuestras acciones y de nuestras palabras
+Muchos de nuestros escenarios cotidianos son una prueba de paciencia y de como es que respondemos a la frustración, el aumento de la intolerancia a partir de la pandemia era una consecuencia natural, el aislamiento nos llevo a desacostumbrarnos de la muchedumbre, la mayoria de los dias el trafico era mas fluido, los lugares estaban mas vacios, las respuestas eran mas rapidas, la atencion parecia casi individual, poco a poco la vida a retomado su ritmo acelerado y sin espacio para errores. 
+Hay que tomar responsabilidad de nuestras palabras y acciones,
