@@ -30,13 +30,13 @@ Nos irrita ser claros porque estamos acostumbrándonos a decir las cosas con emo
 APRENDER A APRENDER
 
 ¿Por que aprender a aprender?
-Nadie te enseña a aprender, ni la importancia que esto tiene a lo largo de nuestros días, ser autodidactas nos da libertad de descubrir diferentes funciones a cada cosa, nos permite la independencia de nuestro conocimiento, estamos educados para ser seres sociales pero podemos desarrollarnos individualmente sin dejar a un lado todo lo que nuestro entorno nos brinda.
+Nadie te enseña a aprender, ni la importancia que esto tiene a lo largo de los días, ser autodidacta nos da libertad de descubrir diferentes funciones a cada cosa, nos permite la independencia de nuestro conocimiento y de nuestra experiencia.
+Estamos educados para ser seres sociales pero podemos desarrollarnos individualmente sin dejar a un lado todo lo que nuestro entorno nos brinda.
 ¿Que es lo que deberiamos aprender?
-Podemos empezar por el uso de la palabra, observar con detenimiento, a comprender lo que escuchamos, lo que aprendemos no tiene que ver solo con las instituciones
+Lo que aprendemos no tiene que ver solo con las instituciones educativas o con un titulo, aprender tiene que ver con todo lo que nos rodea, podemos empezar con el uso de la palabra, observar con detenimiento, comprender lo que escuchamos y es que aunque parezca muy basico, no es algo que se practique comunmente, aprender a aprender es la base de la investigación pues tu decides que es lo que estas buscando y como desarrollarte para encontrarlo.
+No todos aprendemos de la misma manera, hay que probar diferentes tecnicas para saber cual es nuestra mejor manera de absorber y almacenar el conocimiento 
 ¿Experimentar lo aprendido?
-Todo los días tenemos la oportunidad de experimentar algo nuevo,  
-
-No todos aprendemos de la misma manera.
+Todo los días tenemos la oportunidad de experimentar, de probar algo nuevo, de intentar cambiar algo en nuestro día, asi también es como se aprende sobre uno mismo, la prueba y error
 
 ## TOLERANCIA
 TOLERANCIA A LA FRUSTRACIÓN 
