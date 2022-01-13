@@ -34,12 +34,18 @@ Nadie te enseña a aprender, ni la importancia que esto tiene a lo largo de los 
 Estamos educados para ser seres sociales pero podemos desarrollarnos individualmente sin dejar a un lado todo lo que nuestro entorno nos brinda.
 ¿Que es lo que deberiamos aprender?
 Lo que aprendemos no tiene que ver solo con las instituciones educativas o con un titulo, aprender tiene que ver con todo lo que nos rodea, podemos empezar con el uso de la palabra, observar con detenimiento, comprender lo que escuchamos y es que aunque parezca muy basico, no es algo que se practique comunmente, aprender a aprender es la base de la investigación pues tu decides que es lo que estas buscando y como desarrollarte para encontrarlo.
-No todos aprendemos de la misma manera, hay que probar diferentes tecnicas para saber cual es nuestra mejor manera de absorber y almacenar el conocimiento 
+No todos aprendemos de la misma manera, hay que probar diferentes tecnicas para saber cual es nuestra mejor manera de absorber y almacenar el conocimiento.
 ¿Experimentar lo aprendido?
-Todo los días tenemos la oportunidad de experimentar, de probar algo nuevo, de intentar cambiar algo en nuestro día, asi también es como se aprende sobre uno mismo, la prueba y error
+Todo los días tenemos la oportunidad de experimentar, de probar algo nuevo, de intentar cambiar algo en nuestro día, asi también es como se aprende sobre uno mismo, no hay nada malo en fallar, es un hecho que aprendemos mas de nuestros "fracasos" pues entendemos que es lo que podemos mejorar, que estamos hechos de la prueba y error en nuestros días.
+Hay que experimentar para mejorar, para praticar, para seguir aprendiendo en el camino.
+
 
 ## TOLERANCIA
 TOLERANCIA A LA FRUSTRACIÓN 
 
+Tolerancia y COVID
 Muchos de nuestros escenarios cotidianos son una prueba de paciencia y de como es que respondemos a la frustración, el aumento de la intolerancia a partir de la pandemia era una consecuencia natural, el aislamiento nos llevo a desacostumbrarnos de la muchedumbre, la mayoria de los dias el trafico era mas fluido, los lugares estaban mas vacios, las respuestas eran mas rapidas, la atencion parecia casi individual, poco a poco la vida a retomado su ritmo acelerado y sin espacio para errores. 
-Hay que tomar responsabilidad de nuestras palabras y acciones,
+¿Por qué siempre estamos a la defensiva?
+Hay que tomar responsabilidad de nuestras palabras y acciones, actuar sin pensar no deberia ser la primera reacción, desafortunadamenre vivimos una realidad muy distinta, las personas actuan de manera impulsiva, no medimos las palabras cuando estamos enojados, actuamos con irresponsabilidad porque somos, solo en nuestra imaginacion, inmortales.
+Esto se relaciona mucho con el hecho de que nadie nos enseño a escuchar, a resolver conflictos, a escuchar y a saber comunicarnos de manera eficiente con nuestro entorno, nos dijeron que si alguien nos hacia algo debiamos defendernos y no dejarnos de nadie, estamos a la defensiva porque fue lo que aprendimos.
+Sumemos a esta formula nuestra naturaleza, la supervivencia del más fuerte, dentro de nuestra información genetica sigue cargada la respuesta de actuar como el más fuerte y capaz
