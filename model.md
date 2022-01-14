@@ -47,5 +47,15 @@ Tolerancia y COVID
 Muchos de nuestros escenarios cotidianos son una prueba de paciencia y de como es que respondemos a la frustración, el aumento de la intolerancia a partir de la pandemia era una consecuencia natural, el aislamiento nos llevo a desacostumbrarnos de la muchedumbre, la mayoria de los dias el trafico era mas fluido, los lugares estaban mas vacios, las respuestas eran mas rapidas, la atencion parecia casi individual, poco a poco la vida a retomado su ritmo acelerado y sin espacio para errores. 
 ¿Por qué siempre estamos a la defensiva?
 Hay que tomar responsabilidad de nuestras palabras y acciones, actuar sin pensar no deberia ser la primera reacción, desafortunadamenre vivimos una realidad muy distinta, las personas actuan de manera impulsiva, no medimos las palabras cuando estamos enojados, actuamos con irresponsabilidad porque somos, solo en nuestra imaginacion, inmortales.
-Esto se relaciona mucho con el hecho de que nadie nos enseño a escuchar, a resolver conflictos, a escuchar y a saber comunicarnos de manera eficiente con nuestro entorno, nos dijeron que si alguien nos hacia algo debiamos defendernos y no dejarnos de nadie, estamos a la defensiva porque fue lo que aprendimos.
-Sumemos a esta formula nuestra naturaleza, la supervivencia del más fuerte, dentro de nuestra información genetica sigue cargada la respuesta de actuar como el más fuerte y capaz
+Esto se relaciona mucho con el hecho de que nadie nos enseño a escuchar, a resolver conflictos, a escuchar y a saber comunicarnos de manera eficiente con nuestro entorno, nos dijeron que si alguien nos hacia algo debiamos defendernos y no dejarnos de nadie, estamos a la defensiva porque fue lo que aprendimos, sumemos a esta formula nuestra naturaleza, la supervivencia del más fuerte, dentro de nuestra información genetica sigue cargada la respuesta de actuar como el más apto y dominante.
+Tolerancia y evolución.
+Pongamos como un ejemplo las peliculas de ficción en las que el futuro se ve como una utopia de paz, con vestuarios extravagantes y personas aparantemente en paz. No es nuestra realidad evidentemente, no entendemos lo diferente y eso nos frustra, el problema es que nos empeñamos en fijarnos en lo que los demás hacen, nos hemos vuelto jueces de lo normal y aceptable, lo raro no es bueno y por ello lo descartamos.
+Pongamos una mano frente a nuestro pecho, es muy facil ver lo que pasa de la mano hacia afuera, lo que nuestros ojos alcanzan a percibir y juzgar, pensemos ahora en nuestra mano y que hay hacia el otro lado, nosotros, no podemos vernos sin ayuda de un espejo y es por eso que es dificil juzgarnos a nosotros mismos, no nos vemos, damos por hecho que lo que hacemos segun nuestros ojos siempre es lo aceptable. 
+La mano representa un limite invisible, sin duda deberiamos trabajar en nosotros y no en intentar cambiar a nadie, trabajar en uno mismo es el primer paso para seguir evolucionando.
+
+## CONCLUSIÓN
+
+Siempre es un buen momento para comenzar a cuestionarnos, para comenzar a aprender algo nuevo sobre cualquier tema o sobre nosotros mismos, salir de la rutina comienza por mirarnos de una manera más individual, no hay nada en el exterior que este en nuestras manos.
+La comunicación con nuestro entorno cambiara cuando comencemos a comunicarnos diferente, nuestro conocimiento se ampliara y evolucionara conforme sea alimentado.
+
+No hay que temer a la responsabilidad de desarrollar nuestra propia consciencia.
